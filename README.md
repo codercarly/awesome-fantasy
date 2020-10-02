@@ -144,6 +144,42 @@ Books:
 
 > In a faraway land where members of the royal family are named for the virtues they embody, one young boy will become a walking enigma. Born on the wrong side of the sheets, Fitz, son of Chivalry Farseer, is a royal bastard, cast out into the world, friendless and lonely. Only his magical link with animals - the old art known as the Wit - gives him solace and companionship. But the Wit, if used too often, is a perilous magic, and one abhorred by the nobility. So when Fitz is finally adopted into the royal household, he must give up his old ways and embrace a new life of weaponry, scribing, courtly manners; and how to kill a man secretly, as he trains to become a royal assassin.
 
+#### [The First Law Trilogy](https://en.wikipedia.org/wiki/The_First_Law) (2006) *by [Joe Abercrombie](https://en.wikipedia.org/wiki/Joe_Abercrombie)* [4.2] :fire:
+
+The First Law is a grimdark epic fantasy trilogy that is very character driven. The characters in this book are not particularly *likable* but despite that I found them all very lovable. The first book is a slow burn, and for a time I wasn't sure I would continue, but by the time I was half way I realised I loved seeing these characters go through their hardships, and on their adventures. This is the kind of series you feel sad about finishing because you want to spend more time with these characters. Fortunately there are standalone books and a second trilogy to read if you enjoy the original trilogy!
+
+The magic in this series isn't front and center. Despite this I would say this is a series every lover of fantasy needs to read. - [@Darknessflowers](https://github.com/Darknessflowers)
+
+Books:
+
+Original trilogy:
+* [The Blade Itself](https://www.goodreads.com/book/show/944073.The_Blade_Itself) [4.2] :fire:
+* [Before They Are Hanged](https://www.goodreads.com/book/show/902715.Before_They_Are_Hanged) [4.3] :fire:
+* [Last Argument of Kings](https://www.goodreads.com/book/show/944076.Last_Argument_of_Kings) [4.3] :fire:
+
+Standalone Novels:
+* [Best Served Cold](https://www.goodreads.com/book/show/2315892.Best_Served_Cold) [4.2]
+* [The Heroes](https://www.goodreads.com/book/show/9300768-the-heroes) [4.3]
+* [Red Country](https://www.goodreads.com/book/show/13521459-red-country) [4.3]
+
+Short Story anthology:
+* [Sharp Ends](https://www.goodreads.com/book/show/26030742-sharp-ends) [4.2]
+
+The Age of Madness Trilogy:
+* [A Little Hatred](https://www.goodreads.com/book/show/35606041-a-little-hatred) [4.5]
+* [The Trouble With Peace](https://www.goodreads.com/book/show/40701777-the-trouble-with-peace) [4.7]
+* The Wisdom of Crowds - *to be released 2021*
+
+> Logen Ninefingers, infamous barbarian, has finally run out of luck. Caught in one feud too many, he’s on the verge of becoming a dead barbarian – leaving nothing behind him but bad songs, dead friends, and a lot of happy enemies.
+>
+> Nobleman Captain Jezal dan Luthar, dashing officer, and paragon of selfishness, has nothing more dangerous in mind than fleecing his friends at cards and dreaming of glory in the fencing circle. But war is brewing, and on the battlefields of the frozen North they fight by altogether bloodier rules.
+>
+>Inquisitor Glokta, cripple turned torturer, would like nothing better than to see Jezal come home in a box. But then Glokta hates everyone: cutting treason out of the Union one confession at a time leaves little room for friendship. His latest trail of corpses may lead him right to the rotten heart of government, if he can stay alive long enough to follow it.
+>
+>Enter the wizard, Bayaz. A bald old man with a terrible temper and a pathetic assistant, he could be the First of the Magi, he could be a spectacular fraud, but whatever he is, he's about to make the lives of Logen, Jezal, and Glokta a whole lot more difficult.
+>
+>Murderous conspiracies rise to the surface, old scores are ready to be settled, and the line between hero and villain is sharp enough to draw blood.
+
 #### [Harry Potter](https://en.wikipedia.org/wiki/Harry_Potter) *by [J.K. Rowling](https://en.wikipedia.org/wiki/J._K._Rowling)*
 
 These are amusing, and relevant for their cultural impact if not for the caliber of the writing. - [@RichardLitt](https://github.com/RichardLitt)
@@ -163,6 +199,22 @@ Books:
 > Each book chronicles one year in Harry's life with the main narrative being set in the years 1991–98. The books also contain many flashbacks, which are frequently experienced by Harry viewing the memories of other characters in a device called a Pensieve.
 >
 > The environment Rowling created is completely separate from reality yet also intimately connected to it. While the fantasy land of Narnia is an alternative universe and the Lord of the Rings‍ '​ Middle-earth a mythic past, the wizarding world of Harry Potter exists in parallel within the real world and contains magical versions of the ordinary elements of everyday life. Many of its institutions and locations are recognizable, such as London. It comprises a fragmented collection of overlooked hidden streets, ancient pubs, lonely country manors and secluded castles that remain invisible to the Muggle population.
+
+#### [Percy Jackson](https://en.wikipedia.org/wiki/Percy_Jackson_%26_the_Olympians) *by [Rick Riordan](https://en.wikipedia.org/wiki/Rick_Riordan)*
+
+These are really amazing and fun to read, especially the characters and how it relates with Greek mythology. - [@ankush1024](https://github.com/ankush1024)
+
+Books:
+
+1. [The Lightning Thief](https://www.goodreads.com/book/show/28187.The_Lightning_Thief) [4.3]
+2. [The Sea of Monsters](https://www.goodreads.com/book/show/28186.The_Sea_of_Monsters) [4.4]
+3. [The Titan's Curse](https://www.goodreads.com/book/show/561456.The_Titan_s_Curse) [4.4]
+4. [The Battle of the Labyrinth](https://www.goodreads.com/book/show/2120932.The_Battle_of_the_Labyrinth) [4.4]
+5. [The Last Olympian](https://www.goodreads.com/book/show/4556058-the-last-olympian) [4.5]
+
+> The novels revolves around Percy Jackson, who is a demigod whose father is Poseidon, God of the Sea and the quests he follows to save the world from the war between gods.
+>
+> The series feel fresh and new from the eyes of these young modern heroes. From the first novel, the plot is engaging and exciting, appealing to anyone who's ever felt like they didn't belong. Between all of the action, magic and riddles, it's a truly heart-warming story about finding friends who eventually become family, and houses that eventually become homes.
 
 #### [The Inheritance Trilogy](https://en.wikipedia.org/wiki/The_Inheritance_Trilogy_(N.K._Jemisin)) *by [N.K. Jemisin](https://en.wikipedia.org/wiki/N._K._Jemisin)*
 
@@ -767,6 +819,12 @@ The fate of the world does not really hang in balance, contrary to what the movi
 Beautiful and stunning film with strong female characters. Even if you're not familiar with Japanese animation movies, I'm sure you will enjoy this one. - [@maysaborges](https://github.com/maysaborges)
 
 > On a journey to find the cure for a Tatarigami's curse, Ashitaka finds himself in the middle of a war between the forest gods and Tatara, a mining colony. In this quest he also meets San, the Mononoke Hime.
+
+#### [Your Name - Kimi no na wa(Original title)](https://www.imdb.com/title/tt5311514/) [8.4]
+
+The idea of eternal love through human existence and connection made be cry. A heartwarming romcom with an intriguing mystery that leaves priceless impressions on you. - [@kritikashah20](https://github.com/kritikashah20)
+
+> Two strangers find themselves linked in a bizarre way. When a connection forms, will distance be the only thing to keep them apart?
 
 ## TV Series
 
